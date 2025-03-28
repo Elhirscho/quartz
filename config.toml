@@ -1,0 +1,9 @@
+baseURL = "https://Elhirscho.github.io"
+languageCode = "de"
+title = "Meine Hugo-Seite"
+theme = "quartz"
+
+[params]
+    description = "Marzapedia"
+    showSearch = true
+    showHeader = true
