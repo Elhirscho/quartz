@@ -1,0 +1,1 @@
+Neckar ist eine Stadt in [[Krell]] auf der [[Planetare Seite|Planetaren Seite]] von [[Moolkov]]. Sie ist vorallem durch ihre Vielfalt der Bewohner gezeichnet. Dadurch finden sich in Neckar auch viele exotische Güter und es ist der Ort den man besuchen sollte wenn man Güter importieren oder exportieren möchte

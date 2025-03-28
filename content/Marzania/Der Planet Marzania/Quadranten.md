@@ -1,0 +1,3 @@
+Mithilfe von Quadranten können Punkte auf einer [[Planetare Seite|Planetaren Seite]] gut beschrieben werden.
+Hierfür wird der erste Quadrant, welcher sich immer Links oben befindet mit A1 bezeichnet. Dies geht in einer Reihe bis zum Rechten oberen [[Eckpunkte|Eckpunkt]] welcher im Normalfall mit A5 bezeichnet wird (oder A4 Q16).
+Die zweite Reihe wird mit dem Buchstaben B versehen und das geht so weiter bis zur E-Reihe (D-Reihe Q16)

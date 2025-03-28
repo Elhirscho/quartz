@@ -1,0 +1,3 @@
+Kailan Krell ist der aktuelle Monarch von der Monarchie [[Krell]]. Der Tradition folgend hat er bei seiner Erhebung in das Monarchentum den Namen seines ihm anvertrauten Landes als Zunamen angenommen.
+Er ist der 25. Monarch [[Krell|Krells]], und hat diese Stellung seit erst 7 Jahren inne. Er gilt als sehr konservativ und [[Korta]]nah. Durch diese Position haben sich auch die Fronten mit [[Zalk]] verhärtet und es kommt zu vermehrten Versuchen beider Seiten, die Kontrolle zu behalten.
+Kailan reflektiert somit das Bild der Krellschen Gesellschaft welche ebenso gespalten und unkompromissbereit sind. 

@@ -1,0 +1,1 @@
+Die Korta aus Krell hat ihre Macht damit begründet dem Willen der Deität zu dienen, was ihnen als Legitimation für willkürliche und nahezu Diktatorische Handlungen bot

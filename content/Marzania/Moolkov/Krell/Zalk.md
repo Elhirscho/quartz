@@ -1,0 +1,3 @@
+Zalk ist eine Stadt in [[Krell]] auf der [[Planetare Seite|Planetaren Seite]] [[Moolkov|Moolkovs]]. Sie ist vor allem deshalb bedeutend da sie als einzige Stadt in [[Krell]] größtenteils Autonom von der Monarchie steht. Diese Autonomität wurde über lange Zeit stark erkämpft und ist auch heute nicht vollständig erreicht. 
+In Zalk gibt es einen Stadtvorsteher welcher das meiste Sagen über Zalk und dessen Umland hat. Dennoch gibt es standartisierte verhandelte Abgaben die Zalk an die Monarchie leisten muss. Diese liegen allerdings unter dem Durchschnitt von dem Rest von [[Krell]].
+Zalk ist eine verhältnismäßig kleine Stadt mit lediglich 15.000 Einwohnern, jedoch befinden sich auch viele Weitläufige Siedlungen im Einflussgebiets von Zalk.

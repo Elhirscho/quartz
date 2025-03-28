@@ -1,0 +1,1 @@
+Ein Staat wird auf [[Marzania]] definiert durch klare Grenzlinien. Ein Staat hat eine eigene und autonome Regierung oder Führungsebene, und muss von den anderen Staaten auf der jeweiligen [[Planetare Seite|Planetaren Seite]] anerkannt sein.

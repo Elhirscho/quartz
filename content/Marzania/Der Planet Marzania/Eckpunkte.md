@@ -1,0 +1,1 @@
+Auf Marzania gibt es 8 sogenannt Eckpunkte, welche zustande kommen wenn 3  zusammenführen. Auf allen 8 Eckpunkten haben sich im Laufe der Zeit große Städte gebildet. Diese bilden zwar keine [[Hauptstädte]] für einzelne [[Staat|Staaten]], jedoch sind sie von fast größerer Bedeutung da hier einzelne [[Kultur|Kulturen]] und Spezien aufeinandertreffen und zusammenleben.

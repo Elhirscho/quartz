@@ -1,0 +1,2 @@
+Helath Krell, auch Prophezeite König genannt, war der einzige Monarch [[Krell|Krells]], welcher die Stellungen des Monarchen, des [[Korta]] Oberhaupts und des Stadtvorsitzes von Marton innehatte. Diese Position ermöglichte es ihm im [[Seitenkrieg Moolkov|Seitenkrieg Moolkovs]] ein starkes und Gnadenloses [[Krell]] aufzubauen. 
+Diese Herrschaft setzte allerdings auch ganz [[Krell]] unter die willkür von Helath Krell.
